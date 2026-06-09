@@ -1,4 +1,4 @@
-# Hi, I'm Saivendar Challa 👋
+# Hi, I'm Saivendar Challa 
 
 ## About Me
 
